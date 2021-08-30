@@ -1,0 +1,2 @@
+# KrishaLearning
+tanulás
